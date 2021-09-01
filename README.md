@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tetemaku
-- 👀 I’m interested in Coding, Videogames and music
+- 👀 I’m interested in coding, videogames and music
 - 🌱 I’m currently learning how to make Minecraft mods
 - 📫 Gmail: Tetemaku88@gmail.com
 
